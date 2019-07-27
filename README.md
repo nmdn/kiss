@@ -1,3 +1,1 @@
-[
-![a] (https://user-images.githubusercontent.com/52860492/61993454-00e90480-b064-11e9-93e4-36def5885f60.png)
-](https://newsmania.club/?p=32)
+[![overlay](https://user-images.githubusercontent.com/52860492/61993591-ff204080-b065-11e9-9d98-65f0be961ebf.png)](https://newsmania.club/?p=23)
